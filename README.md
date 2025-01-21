@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Zellinky
 - 👀 I’m interested in codar 
-- 🌱 I’m currently learning progra,ar
+- 🌱 I’m currently learning programar
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me ... 
 - 😄 Pronouns: ...
